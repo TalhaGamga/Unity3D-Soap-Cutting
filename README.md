@@ -1,7 +1,5 @@
 **Hyper Casual Mechanic-Soap Cutting**
 
 
-
-
-https://github.com/user-attachments/assets/91399f22-0e11-4078-bd21-ee72c8b68a71
+https://github.com/user-attachments/assets/ce441f55-781a-46c9-8231-373fb22a7e4a
 
